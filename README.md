@@ -1,0 +1,9 @@
+cqsxqcxcqc
+cxqc
+qc
+q
+c
+qc
+c
+qcq
+cqc
